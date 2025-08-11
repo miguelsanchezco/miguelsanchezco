@@ -10,7 +10,7 @@
 
 ⌚CEO en Biseli Relojeria   https://biselirelojeria.com
 
-📫 How to reach me: miangel00.77@gmail.com, Instagram: @miguelsanchezco, Twitter: @miguesanchezco
+📫 How to reach me: justmarketco@gmail.com, Instagram: @miguelsanchezco, Twitter: @miguesanchezco
 
 <!---
 malosopt/malosopt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
